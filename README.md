@@ -1,3 +1,5 @@
+<a href="https://wakatime.com"><img src="https://wakatime.com/share/@3368316b-79b7-471c-b1b0-78b5bccdd473/b9eb3bac-c402-4527-85b4-acf4e8dce739.png" /></a>
+
 ## 안녕하세요
 
 ## Introduction
