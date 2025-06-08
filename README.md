@@ -15,7 +15,7 @@
 - 영남대학교 컴퓨터공학과
 
 
-## Links
+## Contact Me 😎
 -E-mail - rlawlgns7205@naver.com
 
 
